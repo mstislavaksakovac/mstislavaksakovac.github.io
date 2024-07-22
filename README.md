@@ -1,0 +1,4 @@
+- [https://www.quora.com/profile/Mstislav-Aksakovac](https://www.quora.com/profile/Mstislav-Aksakovac)
+- [https://www.youtube.com/channel/UCSRtUc_SYcnZJfEI_MBAtzw](https://www.youtube.com/channel/UCSRtUc_SYcnZJfEI_MBAtzw)
+- [https://medium.com/@mstislavaksakovac](https://medium.com/@mstislavaksakovac)
+- [https://www.reddit.com/user/Illustrious_Use_3347/](https://www.reddit.com/user/Illustrious_Use_3347/)
